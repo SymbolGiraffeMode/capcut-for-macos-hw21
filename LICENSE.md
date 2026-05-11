@@ -1,4 +1,4 @@
-
+advanced CapCut for macOS Helper | color-correction + raw-file-support is the best CapCut for macOS helper, featuring color-correction and raw-file-support. Powerful, efficient,
 
 
 
